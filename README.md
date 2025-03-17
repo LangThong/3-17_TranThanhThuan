@@ -1,2 +1,1 @@
-# NNPTUD_S2
-# Trần Thanh Thuận 21DTHD6
+# Trần Thanh Thuận 21DTHD6 2180608968
